@@ -1,0 +1,5 @@
+- 👋 Hi, I’m world.
+- 👀 I’m interested in deez nuts.
+- 🌱 I am currently looking for a gorilla.
+- 💞️ I’m looking to collaborate on the next iCarly episode.
+- 📫 My contact info is - world#0001, figure out the website.
